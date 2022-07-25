@@ -1,1 +1,1 @@
-# yaldamk.github.io
+This is a map of my favorite destinations in California!
